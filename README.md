@@ -4,4 +4,4 @@
 - [Youtube](https://www.youtube.com/@CherryBing909)
 - [X](https://x.com/cherrybing909)
 - [Medium](https://medium.com/@cherrybing)
-- 
+- [Podcast](https://podcasters.spotify.com/pod/show/cherry-bing)
