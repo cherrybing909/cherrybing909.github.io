@@ -5,3 +5,4 @@
 - [X](https://x.com/cherrybing909)
 - [Medium](https://medium.com/@cherrybing)
 - [Podcast](https://podcasters.spotify.com/pod/show/cherry-bing)
+- [Spotify](https://open.spotify.com/show/0wCRHV8AZTvbbypKLmBtMz)
